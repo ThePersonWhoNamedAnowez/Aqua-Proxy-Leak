@@ -1,3 +1,3 @@
-# AJProxy leaked source
-owner skids from other sources zzz
-gay idiot snitched me over 13dl
+# AQUA Proxy leaked source
+Dont give any dls i leaked it
+its free now :)
